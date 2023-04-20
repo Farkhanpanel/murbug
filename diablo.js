@@ -229,9 +229,9 @@ jiren = `  *🇲🇨 Aku Adalah Bot War Dari Indonesian Di Buat Oleh Febryan A.F
 
 
 ╔═══《 𝑩𝑶𝑻 𝑰𝑵𝑭𝑶 》════
-╠❏ ᴄʀᴇᴀᴛᴏʀ : Luxxy gmg
-╠❏ ʙᴏᴛ ɴᴀᴍᴇ : █▓▒▒░░░𝙔𝙖𝙣𝙣𝘽𝙤𝙩𝙯𝙯░░░▒▒▓█
-╠❏ ᴏᴡɴᴇʀ ɴᴀᴍᴇ : █▓▒▒░░░𝙔𝙖𝙣𝙉𝙤𝘾𝙤𝙪𝙣𝙩𝙚𝙧░░░▒▒▓█
+╠❏ ᴄʀᴇᴀᴛᴏʀ : Luxxy Murbug
+╠❏ ʙᴏᴛ ɴᴀᴍᴇ : Luxxy Botz
+╠❏ ᴏᴡɴᴇʀ ɴᴀᴍᴇ : Luxxy
 ╠❏ ᴡᴀ ᴏᴡɴᴇʀ : http://wa.me/6285655636044
 ╠❏ ʏᴏᴜᴛᴜʙᴇ ᴏᴡɴᴇʀ : 
 ╠❏ ɢʀᴜᴘ ᴍᴜʀʙᴜɢ : 
